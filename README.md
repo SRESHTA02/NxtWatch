@@ -1,4 +1,4 @@
- https://NxtWatchsreshta.ccbp.tech
+https://NxtWatch30s.ccbp.tech
 ### Refer to videos below:
 
 **Success View** <br/>
